@@ -1,0 +1,1 @@
+A ferramenta aparenta não ser muito confiável para textos em português, e a avaliação dela é bem simplista, imagino poucos casos de uso para a tecnologia atualmente.
