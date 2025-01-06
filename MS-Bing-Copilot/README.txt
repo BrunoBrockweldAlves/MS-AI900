@@ -1,0 +1,1 @@
+A análise ainda é muito simples, não descrevendo mais do que dois ou três aspectos da cena, e se confundindo, como por exemplo trocando o teclado por um piano, algo que faz muita diferença na interpretação da cena.
